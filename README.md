@@ -1,5 +1,6 @@
+|​-To będzie na środku​-​|
+
 # Hi 👋, I'm MC_jeleń :)
-|- To będzie na środku -|
 
 Jeśli już tu jesteś to lepiej stąd idź bo dzieją się tu straszne rzeczy..
 
