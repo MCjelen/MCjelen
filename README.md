@@ -1,4 +1,4 @@
-# 👋 Cześć, ja jestem MC_jeleń :) #1
+# 👋 Cześć, ja jestem MC_jeleń :)
 -----------------------------------
 
 Jeśli już tu jesteś to lepiej stąd idź bo dzieją się tu straszne rzeczy..
