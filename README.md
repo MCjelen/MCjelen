@@ -1,4 +1,4 @@
-|= To będzie na środku =|
+| =To będzie na środku= |
 
 # Hi 👋, I'm MC_jeleń :)
 
